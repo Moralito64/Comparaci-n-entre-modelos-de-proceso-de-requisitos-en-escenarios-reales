@@ -1,1 +1,0 @@
-# Comparaci-n-entre-modelos-de-proceso-de-requisitos-en-escenarios-reales
